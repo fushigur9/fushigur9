@@ -1,5 +1,3 @@
-![](https://file.garden/alqzWtqplE9QfqIP/antler%20div.png)
-
 $${\color{#373B46}❛❛ㅤDemonㅤDogs!ㅤ❜❜}$$
 
 <p align="center">
