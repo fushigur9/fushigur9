@@ -1,19 +1,11 @@
-<p align="center">
-  <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_5945a63335e71a6afd55399cd0c1c58f_3cb7330b_400.png">
+![](https://file.garden/alqzWtqplE9QfqIP/antler%20div.png)
 
+$${\color{#d6c1b4}❛❛ㅤIㅤwasㅤgood,ㅤIㅤwasㅤreallyㅤgood...ㅤ❜❜}$$
+
+<p align="center">
+    <img src="https://file.garden/alqzWtqplE9QfqIP/FOR%20GH%201.png" width="200">
 </p>
 
-<!--
-**fushigur9/fushigur9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+$${\color{#a47e67}𓏏𓏏ㅤmilesㅤorㅤmatthewㅤ♡ॱ𓏽}$$
+$${\color{#8d5630}‿‿ㅤsysㅤ˶ㅤ6teenㅤbodilyㅤ಄}$$
+$${\color{#61301a}╰ㅤneilㅤperryㅤsoftㅤsharingㅤselfshipperㅤ﹏}$$
