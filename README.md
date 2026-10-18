@@ -1,11 +1,11 @@
 ![](https://file.garden/alqzWtqplE9QfqIP/antler%20div.png)
 
-$${\color{#d6c1b4}❛❛ㅤIㅤwasㅤgood,ㅤIㅤwasㅤreallyㅤgood...ㅤ❜❜}$$
+$${\color{#373B46}❛❛ㅤDemonㅤDogs!ㅤ❜❜}$$
 
 <p align="center">
-    <img src="https://file.garden/alqzWtqplE9QfqIP/FOR%20GH%201.png" width="200">
+    <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_5945a63335e71a6afd55399cd0c1c58f_3cb7330b_400.png">
 </p>
 
-$${\color{#a47e67}𓏏𓏏ㅤmilesㅤorㅤmatthewㅤ♡ॱ𓏽}$$
-$${\color{#8d5630}‿‿ㅤsysㅤ˶ㅤ6teenㅤbodilyㅤ಄}$$
-$${\color{#61301a}╰ㅤneilㅤperryㅤsoftㅤsharingㅤselfshipperㅤ﹏}$$
+$${\color{#373B46}𓏏𓏏ㅤmilesㅤorㅤmegumiㅤ♡ॱ𓏽}$$
+$${\color{#373B46}‿‿ㅤsysㅤ˶ㅤ6teenㅤbodilyㅤ಄}$$
+$${\color{#373B46}╰ㅤmegumiㅤfictkinㅤ.ㅤtakenㅤ﹏}$$
